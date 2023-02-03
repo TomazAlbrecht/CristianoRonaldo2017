@@ -1,2 +1,2 @@
 # CristianoRonaldo2017
-to só a preguiça
+aula 1
